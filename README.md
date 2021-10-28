@@ -41,4 +41,3 @@
 <a href="https://github.com/jooabbas99" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/jam-icons@2.0.0/svg/link.svg" alt="website" height="30" width="30" /></a>
 <a href="https://fb.com/joo.abs99" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/facebook.svg" alt="facebook" height="30" width="30" /></a>
 <a href="https://linkedin.com/in/joeabbas99" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg" alt="linkedIn" height="30" width="30" /></a>
-
