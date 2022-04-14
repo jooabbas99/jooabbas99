@@ -78,3 +78,6 @@
 <a href="https://github.com/jooabbas99" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/jam-icons@2.0.0/svg/link.svg" alt="website" height="30" width="30" /></a>
 <a href="https://fb.com/joo.abs99" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/facebook.svg" alt="facebook" height="30" width="30" /></a>
 <a href="https://linkedin.com/in/joeabbas99" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg" alt="linkedIn" height="30" width="30" /></a>
+
+
+https://teams.microsoft.com/l/meetup-join/19%3ameeting_ZTlmMWJmZjYtNjVjMS00NjFhLTliOTEtZTc0YzBmZWYyYTE4%40thread.v2/0?context=%7b%22Tid%22%3a%222f523e81-1c43-4a7f-a2dc-e1124a79cdf3%22%2c%22Oid%22%3a%22e07364cd-ffb8-47c3-825a-2c0f4f3406f0%22%7d
