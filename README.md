@@ -79,24 +79,6 @@
 <a href="https://fb.com/joo.abs99" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/facebook.svg" alt="facebook" height="30" width="30" /></a>
 <a href="https://linkedin.com/in/joeabbas99" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg" alt="linkedIn" height="30" width="30" /></a>
 
+https://teams.microsoft.com/l/meetup- join/19%3ameeting_NmQ5NmM3ODgtZDc5Yy00YzI5LWIzMzgtYjM1M2EyOT NhODQw%40thread.v2/0?context=%7b%22Tid%22%3a%222f523e81-1c43- 4a7f-a2dc-e1124a79cdf3%22%2c%22Oid%22%3a%225da83bf9-df6e-464b- 90e1-ea1e2c370fda%22%7d
 
-￼￼￼￼￼￼https://teams.microsoft.com/l/meetup- join/19%3ameeting_NmQ5NmM3ODgtZDc5Yy00YzI5LWIzMzgtYjM1M2EyOT NhODQw%40thread.v2/0?context=%7b%22Tid%22%3a%222f523e81-1c43- 4a7f-a2dc-e1124a79cdf3%22%2c%22Oid%22%3a%225da83bf9-df6e-464b- 90e1-ea1e2c370fda%22%7d
-اجتماع بروتوكولي للمراجعين مع عميد المؤسسة والوكلاء ومنسق الزيارة Username 1
-جميع أعضاء￼ الفريق
-10.00- 10.30
-￼￼￼￼￼￼￼￼￼￼￼￼￼￼￼https://teams.microsoft.com/l/meetup- join/19%3ameeting_YWExMjM5ZmItZTY2YS00NjA3LTg0MzItMmZjOGI1ODYy MjNh%40thread.v2/0?context=%7b%22Tid%22%3a%222f523e81-1c43-4a7f- a2dc-e1124a79cdf3%22%2c%22Oid%22%3a%225da83bf9-df6e-464b-90e1- ea1e2c370fda%22%7d
-ا.د. محمد سعد الدين ا.د. سحر فاروق
-لقاء المجموعة الأولى (ا) من طلاب المرحلة الجامعية الأولى (15-10 من طلاب الفرق
-الدراسية الأولى والثانية و......))
-￼￼￼￼￼Username 1
-10.45- 11.45
-￼￼￼￼￼￼￼￼￼https://teams.microsoft.com/l/meetup- join/19%3ameeting_MWYwOGIzYmEtYjdmYS00YzlmLWFlYTktZWMxNzJkOG JiZjJi%40thread.v2/0?context=%7b%22Tid%22%3a%222f523e81-1c43-4a7f- a2dc-e1124a79cdf3%22%2c%22Oid%22%3a%22e07364cd-ffb8-47c3-825a- 2c0f4f3406f0%22%7d
-ا.د. احمد￼ سليمان ا.د. هبة امين
-لقاء المجموعة الأولى (ب) من طلاب المرحلة الجامعية الأولى (15-10 من طلاب الفرق الدراسية الأولى والثانية و......)
-￼￼￼￼Username 2
-￼￼￼￼￼￼￼￼￼￼https://teams.microsoft.com/l/meetup- join/19%3ameeting_MTJkMWY2MmUtZmMzYi00NTBlLTk0NTItZjY3ZTE1MzU 5Nzlj%40thread.v2/0?context=%7b%22Tid%22%3a%222f523e81-1c43-4a7f- a2dc-e1124a79cdf3%22%2c%22Oid%22%3a%225da83bf9-df6e-464b-90e1- ea1e2c370fda%22%7d
-ا.د. محمد سعد الدين ا.د. سحر فاروق
-لقاء المجموعة الثانية (ا) من طلاب المرحلة الجامعية الأولى (15-10 من طلاب الفرق الدراسية الثالثة والرابعة و....)
-11.45￼￼￼ – 12.45
-￼￼Username 1
-￼￼￼￼￼￼￼￼
+￼￼￼￼￼￼
