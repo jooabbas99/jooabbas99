@@ -80,5 +80,3 @@
 <a href="https://linkedin.com/in/joeabbas99" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg" alt="linkedIn" height="30" width="30" /></a>
 
 https://teams.microsoft.com/l/meetup- join/19%3ameeting_NmQ5NmM3ODgtZDc5Yy00YzI5LWIzMzgtYjM1M2EyOT NhODQw%40thread.v2/0?context=%7b%22Tid%22%3a%222f523e81-1c43- 4a7f-a2dc-e1124a79cdf3%22%2c%22Oid%22%3a%225da83bf9-df6e-464b- 90e1-ea1e2c370fda%22%7d
-
-￼￼￼￼￼￼
