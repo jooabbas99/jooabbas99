@@ -9,7 +9,7 @@
 
 -   **Pyhotn Developrer**     <img height="25" src="https://www.vectorlogo.zone/logos/python/python-icon.svg">
 
--  I’m currently learning **.Net Frameworks  , Docker.**
+-  I’m currently learning **Embedded Systems
 
 - 👨‍💻 All of my projects are available at [my profile](https://github.com/jooabbas99)
 
