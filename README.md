@@ -14,8 +14,12 @@ Welcome to my GitHub profile! I'm a passionate **Software Engineer** specializin
 
 ---
 
-## 📊 GitHub Stats
+## 📊 Personal GitHub Stats
 ![Youssef's GitHub Stats](https://github-readme-stats.vercel.app/api?username=jooabbas99&show_icons=true&theme=radical)
+
+
+## 📊 Work GitHub Stats
+![Youssef's GitHub Stats](https://github-readme-stats.vercel.app/api?username=yabbastbm&show_icons=true&theme=radical)
 
 ## 🚀 Featured Projects
 ### [IBIC]
